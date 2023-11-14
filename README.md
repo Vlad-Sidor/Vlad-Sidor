@@ -1,4 +1,5 @@
 ### Hi there 👋
+### ![image](https://github.com/Vlad-Sidor/Vlad-Sidor/assets/52883583/5cc0101a-16b8-4a5b-8a84-604c34eb539b)
 
 <!--
 **Vlad-Sidor/Vlad-Sidor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
