@@ -1,5 +1,4 @@
-### Hi there 👋
-### ![image](https://github.com/Vlad-Sidor/Vlad-Sidor/assets/52883583/5cc0101a-16b8-4a5b-8a84-604c34eb539b) ![image](https://github.com/Vlad-Sidor/Vlad-Sidor/assets/52883583/6ea4a5b1-fcb1-4b70-8408-7c4f62ad2042)
+### ![image](https://github.com/Vlad-Sidor/Vlad-Sidor/assets/52883583/5cc0101a-16b8-4a5b-8a84-604c34eb539b)   ![image](https://github.com/Vlad-Sidor/Vlad-Sidor/assets/52883583/6ea4a5b1-fcb1-4b70-8408-7c4f62ad2042)
 
 
 <!--
